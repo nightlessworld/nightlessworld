@@ -7,4 +7,7 @@
 <div align="center">
   
 **dni** ↓14
+<div align="center">
+
+**byi** i don't like sex/omegaverse/kink jokes
 </p>
