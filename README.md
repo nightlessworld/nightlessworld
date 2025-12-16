@@ -1,16 +1,11 @@
-## Hi there 👋
+<div align="center">
+<img width=100 height=111 src="https://archives.bulbagarden.net/media/upload/2/22/Spr_B2W2_Roxie.png"><br>
+<b>MAGDA</b><br>
+19 — any prns<br>
+↓17 limit int<br>
+<img src="https://archives.bulbagarden.net/media/upload/8/8c/Pinani109.png"> narutoㅤnanbakaㅤfairy tailㅤnoragami<br>bsdㅤsayonara zetsubou senseiㅤtokrev<br>
+tekkenㅤpokemonㅤhi3rdㅤmortal kombat <br>sky cotlㅤgtaㅤ+more<br><br>
+<img src="https://archives.bulbagarden.net/media/upload/d/de/VSRoxie.png"><br>
 
-<!--
-**nightlessworld/nightlessworld** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+[**ata**](https://kereremere.atabook.org/)ㅤㅤ[**straw**](https://sentino.straw.page/)
+</div>
