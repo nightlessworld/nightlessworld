@@ -3,8 +3,8 @@
 <b>MAGDA</b><br>
 19 — any prns . pl/eng<br>
 ↓17 limit int<br>
-<img src="https://archives.bulbagarden.net/media/upload/8/8c/Pinani109.png"> dcㅤpokemonㅤnarutoㅤnanbaka<br>
-tekkenㅤnoragamiㅤhi3rdㅤmortal kombat <br>sky cotlㅤgtaㅤ+more<br><br>
+<img src="https://archives.bulbagarden.net/media/upload/8/8c/Pinani109.png"> dcㅤpokemonㅤnarutoㅤdexter<br>
+tekkenㅤnanbakaㅤhi3rdㅤmortal kombat <br>sky cotlㅤgtaㅤ+more<br><br>
 <img src="https://archives.bulbagarden.net/media/upload/d/de/VSRoxie.png"><br>
 <a href="https://www.imood.com/users/kereremere"><img src="https://moods.imood.com/display/uname-kereremere/fg-ffffff/trans-1/imood.gif" alt="The current mood of kereremere at www.imood.com" border="0"></a><br>
   
