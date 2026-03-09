@@ -8,5 +8,5 @@ tekkenㅤnanbakaㅤhi3rdㅤmortal kombat <br>sky cotlㅤgtaㅤ+more<br><br>
 <img src="https://archives.bulbagarden.net/media/upload/d/de/VSRoxie.png"><br>
 <a href="https://www.imood.com/users/kereremere"><img src="https://moods.imood.com/display/uname-kereremere/fg-ffffff/trans-1/imood.gif" alt="The current mood of kereremere at www.imood.com" border="0"></a><br>
   
-[**ata**](https://kereremere.atabook.org/)ㅤㅤ[**straw**](https://sentino.straw.page/)
+[**ata**](https://kereremere.atabook.org/)ㅤㅤ[**straw**](https://kereremere.straw.page/)
 </div>
