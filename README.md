@@ -1,12 +1,9 @@
-<div align="center">
-<img width=100 height=111 src="https://archives.bulbagarden.net/media/upload/2/22/Spr_B2W2_Roxie.png"><br>
-<b>MAGDA</b><br>
+<img src="https://i.ibb.co/27JrkTd2/0686b7107e25c15291b40fab9cef51ab-Photoroom.png" align="left" width="30%"><br>
+<br><br>
+   <b>MAGDA</b><br>
 19 — any prns . pl/eng<br>
-↓17 limit int<br>
-<img src="https://archives.bulbagarden.net/media/upload/8/8c/Pinani109.png"> dcㅤpokemonㅤnarutoㅤdexter<br>
-tekkenㅤnanbakaㅤhi3rdㅤmortal kombat <br>sky cotlㅤgtaㅤ+more<br><br>
-<img src="https://archives.bulbagarden.net/media/upload/d/de/VSRoxie.png"><br>
-<a href="https://www.imood.com/users/kereremere"><img src="https://moods.imood.com/display/uname-kereremere/fg-ffffff/trans-1/imood.gif" alt="The current mood of kereremere at www.imood.com" border="0"></a><br>
+  ↓17 limit int<br><br>
+dcㅤpokemonㅤnaruto<br>
+tekkenㅤdexterㅤhi3rd<br>sky cotlㅤgtaㅤ+more<br>
   
-[**ata**](https://kereremere.atabook.org/)ㅤㅤ[**straw**](https://kereremere.straw.page/)
-</div>
+  [**ata**](https://kereremere.atabook.org/)ㅤㅤ[**straw**](https://kereremere.straw.page/)
