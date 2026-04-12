@@ -1,4 +1,4 @@
-<img src="https://i.ibb.co/27JrkTd2/0686b7107e25c15291b40fab9cef51ab-Photoroom.png" align="left" width="30%"><br>
+<img src="https://i.postimg.cc/g08DCFsr/667b69bdda5c175bf26f420d7c6bd05c-Photoroom.png" align="left" width="20%"><br>
 <br><br>
    <b>MAGDA</b><br>
 19 — any prns . pl/eng<br>
