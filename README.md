@@ -3,7 +3,5 @@
    <b>MAGDA</b><br>
 19 — any prns . pl/eng<br>
   ↓17 limit int<br><br>
-dcㅤpokemonㅤnaruto<br>
-tekkenㅤdexterㅤhi3rd<br>sky cotlㅤgtaㅤ+more<br>
-  
-  [**ata**](https://kereremere.atabook.org/)ㅤㅤ[**straw**](https://kereremere.straw.page/)
+   [**strawpage**](https://kereremere.straw.page/)<br>
+ [**rentry**](https://rentry.co/kereremere)  [**atabook**](https://kereremere.atabook.org/)
