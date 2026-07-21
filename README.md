@@ -4,4 +4,4 @@
 19 — any prns . pl/eng<br>
   ↓17 limit int<br><br>
    [**strawpage**](https://kereremere.straw.page/)<br>
- [**rentry**](https://rentry.co/magda)  [**atabook**](https://kereremere.atabook.org/)
+ [**rentry**](https://rentry.org/magda)  [**atabook**](https://kereremere.atabook.org/)
