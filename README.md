@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://i.postimg.cc/g08DCFsr/667b69bdda5c175bf26f420d7c6bd05c-Photoroom.png" align="left" width="20%"><br>
+<img src="https://i.postimg.cc/g08DCFsr/667b69bdda5c175bf26f420d7c6bd05c-Photoroom.png" align="left" width="200px"><br>
   
 <br><br>
    <b>MAGDA</b><br>
