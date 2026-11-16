@@ -17,7 +17,7 @@ c+h anytime, w2i
 </td></tr>
 <tr><td align="center">
   
-$$\color{#695fbe}{\text{𝗗𝗡𝗜 :}} $$  the usual stuff<br>↓17 IWC<br><br>
+$$\color{#695fbe}{\text{𝗗𝗡𝗜 :}} $$  the usual stuff<br>↓18 IWC<br><br>
 $$\color{#d5604d}{\text{𝗜𝗡𝗧 :}} $$ DC, Pokemon, Tekken,<br>
 Moomins, Postal, Hotline<br>Miami +more
 </td></tr>
