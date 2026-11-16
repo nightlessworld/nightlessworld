@@ -7,7 +7,7 @@
 <td align="center">
 
 $$\color{#a74494}{\text{𝗠𝗔𝗚𝗗𝗔}} $$ <br>
-nineteen — pl/eng<br>
+twenty — pl/eng<br>
 any pronouns<br><br>
 c+h anytime, w2i
 </td></tr>
